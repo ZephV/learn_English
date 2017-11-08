@@ -1,0 +1,3 @@
+# Fall in Love with English
+
+Hiding behind the loose dusty curtain, a teenager packed up his overcoat into the suitcase. He planned to leave home at dusk though there was thunder and lightning outdoors. He had got to do this because he was tired of his parent's nagging about this English study and did not not want to go through it any longer. He couldn't get along well with English and disliked joining in English classes because he thought hit teacher ignored him on purpose. As a result, his score in each exam never added up to over 60.
